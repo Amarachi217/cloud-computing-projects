@@ -1,1 +1,1 @@
-Grace is a kid
+Grace is a very small child
